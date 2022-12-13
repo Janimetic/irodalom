@@ -3,7 +3,7 @@ A belső én kivetül a tájra.
 Olyan ez, mint amikor nézzük a Mona Lisát és előbb-utóbb eszünkbe fog jutni a lényeg, hogy aki festett az valamit érzett az iránt a hölgy iránt. 
 Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világunk.
 
-Holt vidék
+# Holt vidék
 - A holt szó szófaját tekintve befejezett melléknévi igenév
 - ha halott, akkor mozdulatlan, sivár, kietlen, hideg és üres
 - jól ismeri a magyar vidéket és igazán sajnálatos, hogy ezt a vidéket József Attila is halottnak látja
@@ -36,3 +36,6 @@ Holt vidék
 - érezzük a fiatal költő cinikus gondolatát, hogy erről azért ők is tehetnek
 - ez a keserű ténymegállapítás
 - tehetetlen a düh, és szomorú, hogy nem lát ebből a helyzetből kiutat
+
+Külvárosi éj
+-
