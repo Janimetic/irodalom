@@ -49,4 +49,15 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - az ábrázolás fordított irányú. 
   -  belülről indul, és tágul a kép
 - éjszaka van
-- az éj sötétsje eltakarja a sötétséget, a nyomort    
+- az éj sötétje eltakarja a sötétséget, a nyomort
+- a gyárak olyanok, mint a temetők. Melyek magukba zárják munkásaikat nap mint nap. Ezeket az élő halottakat.
+- Az éjszaka eltakarja a szegénységet, elfeledteti a nyomort ideig-óráig
+- az éjszakába beleszakít egy vonatfütty, kettéválasztva a verset
+- mintha mozdulna valami a sötét éjszakában.
+- néhányan szórólapokat visznek titokban, mert megelégelték a nyomotr. 
+- A külváros szegénységét. 
+- vannak, akik szervezkednek, mert  ezt sokáig elviselni már lehetetlen lesz. 
+- a panasz sorozata lassan eléri a csúcspontot, de az utolsó négy sor feloldja az eddigi kínokat
+ József Attila együttérez és leírja, szóvá teszi ezekkel a láthatatlan hősökkel. 
+- és hangsúlyozza, együtt érez ezekkel a láthatatlan hősökkel,  és hangsyúlyozza az összetartozást
+- az éj komoly, az éj nehéz
