@@ -27,5 +27,12 @@ Holt vidék
 - a tél mintha megszemélyesült lény lenne. "a tél körme oldaláról egy keveset, repesztgeti még a meszet"
 - látja az elmaradottságot.
 - belép a kerítésen belülre, de látja, hogy minden sorsára van hagyva, az ól ajtaja kitárva lóg, szél babrálja
-- mintha tényleg lemondott róla a gazda, mert nincs miből malacot tartani, azt etetni, mert mérhetetlen a szegénység
-- 
+- mintha tényleg lemondott volna róla a gazda, mert nincs miből malacot tartani, azt etetni, mert mérhetetlen a szegénység
+- az utolsó előtt szakaszban benyit az ajtón, és belép a szobába
+- ott vannak. Akiket eddig nem láttunk, akiket eddig hiányoltunk. 
+- Ez az embertelen világ mintha élni tudna ebben a szobában. 
+- Ott dohányoznak a parasztok valami szárított levelet füstölve.
+- Nem dohányt, mert nincs pénzük. És __nincs jövőjük__
+- érezzük a fiatal költő cinikus gondolatát, hogy erről azért ők is tehetnek
+- ez a keserű ténymegállapítás
+- tehetetlen a düh, és szomorú, hogy nem lát ebből a helyzetből kiutat
