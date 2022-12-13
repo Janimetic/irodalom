@@ -37,5 +37,5 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - ez a keserű ténymegállapítás
 - tehetetlen a düh, és szomorú, hogy nem lát ebből a helyzetből kiutat
 
-Külvárosi éj
+## Külvárosi éj
 - ifjúkorának másik fontos színhelyéül ad korképet
