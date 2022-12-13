@@ -27,4 +27,5 @@ Holt vidék
 - a tél mintha megszemélyesült lény lenne. "a tél körme oldaláról egy keveset, repesztgeti még a meszet"
 - látja az elmaradottságot.
 - belép a kerítésen belülre, de látja, hogy minden sorsára van hagyva, az ól ajtaja kitárva lóg, szél babrálja
--
+- mintha tényleg lemondott róla a gazda, mert nincs miből malacot tartani, azt etetni, mert mérhetetlen a szegénység
+- 
