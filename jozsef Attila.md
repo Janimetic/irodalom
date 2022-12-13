@@ -38,4 +38,4 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - tehetetlen a düh, és szomorú, hogy nem lát ebből a helyzetből kiutat
 
 Külvárosi éj
--
+- ifjúkorának másik fontos színhelyéül ad korképet
