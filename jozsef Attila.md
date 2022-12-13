@@ -39,3 +39,14 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 
 ## Külvárosi éj
 - ifjúkorának másik fontos színhelyéül ad korképet
+- teljesen más a környék, de az élet ugyan olyan. 
+- parasztok helyett prolétárok a főszereplők
+- a proletárok itt csupán a munkások
+- gyerekkorának helyszínei ezek a gyárak
+- ahol szegényesen élik tízezrek az életüket
+- ezekkel a városi szegényekkel vállal sorsközösséget 
+- ismeri őket, az ő életüket is éli, tudja, hogy milyen nehéz
+- az ábrázolás fordított irányú. 
+  -  belülről indul, és tágul a kép
+- éjszaka van
+- az éj sötétsje eltakarja a sötétséget, a nyomort    
