@@ -80,4 +80,5 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - a tél fagyos, hideg átjárja az ember bőrét. 
 - Az éjszaka ijeszőt, benne az ember magányos, mert nem let senkit sem
 - az itt megelevenedő táj kegyetlen a költővel, hogy így mutatja meg magát neki
-- 
+- az első sor úgy tűnik, mintha az olvasóhoz szólna, viszont nem. Ekkor már ő maga is küszködik elméjének megbillenésével. "légy fegyelmezett pajtás" mintha csak magát figyelmeztetné, hogy nehogy eluralkodjon rajta a kétségbeesés.
+- pl az elmagányosodást, mert minden olyan barátságtalan, se barát, se család, se szerelmes társ. érzi, érzékeli a világban a bizonytalanságot. az egyes ember elmagányosodását. mert az egész világ mintha ténlyeg embertelen lenne. ez a vízió, az elidegenedés víziója rajta is lecsapódik. keresné a szeretetet, de nem találja meg sehol. 
