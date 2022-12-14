@@ -63,3 +63,4 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - az éj komoly, az éj nehéz
 
 ## A város peremén
+- 
