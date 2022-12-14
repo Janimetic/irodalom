@@ -62,4 +62,4 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - és hangsúlyozza, együttérez ezekkel a láthatatlan hősökkel,  és hangsyúlyozza az összetartozást
 - az éj komoly, az éj nehéz
 
-##A város peremén
+## A város peremén
