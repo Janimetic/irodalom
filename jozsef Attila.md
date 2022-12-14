@@ -63,4 +63,21 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - az éj komoly, az éj nehéz
 
 ## A város peremén (1933)
+- Nehéz idők
+- ebben az időben lép színre Hitler
+- ekkor ér véget a világválság
+- éjszakaversek sorába tartozik
+- a város pereme a külváros, a két vers címe szinonima
+- a Nagyon fáj című kötetben jelenik meg
+- hely és idő megjelöléssel kezdi a verset
+- a külváros, a permvidék látványa siralmas. Mindent belep a gyárak pora. Rátelepszik az emberek lelkére is. Ránehezedik az emberek lelkére a 20. század
+- emberhez nem méltó életet élnek itt
+- amilyen sivár a látvány, olyan sivár minden egyes emberi élet
+- A munkások feladat lenne, hogy ezt megszüntessék, és megtalálják kint a világban és az emberi lélekben a harmóniát
+
+## Téli éjszakaa
+- az életének nehézségeit nyomatékosítja
+- a tél fagyos, hideg átjárja az ember bőrét. 
+- Az éjszaka ijeszőt, benne az ember magányos, mert nem let senkit sem
+- az itt megelevenedő táj kegyetlen a költővel, hogy így mutatja meg magát neki
 - 
