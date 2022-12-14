@@ -59,5 +59,7 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - vannak, akik szervezkednek, mert  ezt sokáig elviselni már lehetetlen lesz. 
 - a panasz sorozata lassan eléri a csúcspontot, de az utolsó négy sor feloldja az eddigi kínokat
  József Attila együttérez és leírja, szóvá teszi ezekkel a láthatatlan hősökkel. 
-- és hangsúlyozza, együtt érez ezekkel a láthatatlan hősökkel,  és hangsyúlyozza az összetartozást
+- és hangsúlyozza, együttérez ezekkel a láthatatlan hősökkel,  és hangsyúlyozza az összetartozást
 - az éj komoly, az éj nehéz
+
+##A város peremén
