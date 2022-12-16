@@ -6,5 +6,5 @@ kötelező magyar irodalmi tételek:
   - A ballada 
   - Ágnes asszony, Szondi két apródja
   - ballada: tragédia dalban elbeszélve
-  -
+  - 
 -
