@@ -18,5 +18,7 @@
 - újszerű tájköltészete: Holt vidék, Külvárosi éj, A város peremén, Téli éjszaka
 
 ### Kosztolányi Dezső
-- Édes Anna
+- Édes Anna: lélektani legény
+
+### 
 
