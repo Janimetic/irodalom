@@ -1,5 +1,7 @@
-kötelező magyar irodalmi tételek:
-- Ady Endre
+
+# kötelező magyar irodalmi tételek:
+
+### Ady Endre
   -szerelmi költészete
   -Őrizem a szemed (Csinszka), Léda versek
 - Arany János, a ballada mestere 
@@ -9,8 +11,12 @@ kötelező magyar irodalmi tételek:
   - öregkori balladák: Margitszigeten készültek,egismerteba tetere hívás cím balladája. Arany munkásságának utolsó öt évében készültek
   
   
-# Babits Mihály   
+### Babits Mihály   
 - Jónás könyve
 
-# József Attila
+### József Attila
 - újszerű tájköltészete: Holt vidék, Külvárosi éj, A város peremén, Téli éjszaka
+
+### Kosztolányi Dezső
+- Édes Anna
+
