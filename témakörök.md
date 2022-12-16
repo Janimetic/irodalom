@@ -13,4 +13,4 @@ kötelező magyar irodalmi tételek:
 - Jónás könyve
 
 # József Attila
-- újszerű tájköltészete: Holt vidék, Külvárosi éj, 
+- újszerű tájköltészete: Holt vidék, Külvárosi éj, A város peremén, Téli éjszaka
