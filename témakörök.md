@@ -20,5 +20,6 @@
 ### Kosztolányi Dezső
 - Édes Anna: lélektani legény
 
-### 
+### Petőfi Sándor
+- Forradalmi látomásköltészete (forradalmat megelőző versei pl: egy gondolat bánt engemet)
 
