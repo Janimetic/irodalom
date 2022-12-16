@@ -7,5 +7,5 @@ kötelező magyar irodalmi tételek:
   - Ágnes asszony, Szondi két apródja
   - ballada: tragédia dalban elbeszélve
   - öregkori balladák: Margitszigeten készültek,egismerteba tetere hívás cím balladája. Arany munkásságának utolsó öt évében készültek
-  
+  -
 -
