@@ -85,5 +85,8 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - úgy érzi, elhidegült mindentől, mindenkitől, a helyét keresné, de nem találja, mert egyedül van a téli éjszakában
 
 ## óda
-
+-ez a vers más mint az eddigiek, ez a vers szerelmes vers, 33-ban írja 
+- Lillafüreden
+- a hölgyet Szöllősi Henrikné Marton Mártának hívják, 
+- műfajmegjeleölb címe van
 
