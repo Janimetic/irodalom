@@ -86,3 +86,4 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 
 ## óda
 
+
