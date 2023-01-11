@@ -129,6 +129,7 @@ kései sirató
 - valószínűleg összefügg azzal, hogy nem találta meg azt a valakit, aki a helyébe léphetett volna
 - megkésett búcsú vers, melyben visszaemlékezik a drágára az egyetlenre, a pótolhatatlanra
 
-A dunánál
+A Dunánál
 - 36-ban készül
-- 
+- ahogy belebámul a hullámokba, belemerül a múltba, az emlékeibe, és hagyja, hogy a folyó ezeket elsodorja
+  
