@@ -102,4 +102,17 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - minden őrá emlékezteti, mert boldog, mert örül, hogy boldog lehet
 - az egyébként végtelen hiányérzete segíti életre kelteni a kedvest
 - ez a látvány, ez a vízió megteremti a tárgyát, a szerelmest és magát a szerelmet, mert akar tartozni valakihez
+- a vers hat egységre tagolható
+- a második egységben társtalansága egyre nyomasztóbb
+- vágyik valaikre a kedvesre
+- aki, mert érzi a zsigereiben eltávolodik tőle
+- harmadik egység: felerősödik a vallomás, végtelen szeretetigényét írja le a legegyszerűbb hasonlatokkal. 
+- hogy nyomatékosítsa érzelmeit, azt írja "szeretlek, mint anyját a gyermek" 
+- "szeretlek, mint mélyüket a hallgatag vermek", "szeretlek, mint fényt a termek" "szeretlek, mint a lángot a lélek" - a tisztítótűzre utal
+- szenvedve is bízok benned, hogy megtisztulok, általad, érted - ezt még sose mondta!
+- a negyedik egy költői látomás, odaomlik a nő elé, a lábaihoz borul
+- a költői én semmi, még az imádott nő egy istennő. 
+- képzeletben belép a test belsejébe, figyeli annak működését. érzékeli a harmóniát.
+-olyan jó lenne, ha az emberi kapcsolatokban is olyan harmónia lenne, mint a test sejtjei közt. 
+- ötödik rész: fél az újabb csalódástól, hogy megint visszautasítják. szinte kezeit feltartva adja meg magát a sorsnak. 
 - 
