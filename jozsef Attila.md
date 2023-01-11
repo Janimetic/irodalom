@@ -1,6 +1,6 @@
 Tulajdonképpen a kezdetek óta megvan a magyar lírában a táj és az ember kapcsolata. 
 A belső én kivetül a tájra.
-Olyan ez, mint amikor nézzük a Mona Lisát és előbb-utóbb eszünkbe fog jutni a lényeg, hogy aki festett az valamit érzett az iránt a hölgy iránt. 
+Olyan ez, mint amikor nézzük a Mona Lisát és előbb- utóbb eszünkbe fog jutni a lényeg, hogy aki festett az valamit érzett az iránt a hölgy iránt. 
 Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világunk.
 
 # Holt vidék #
@@ -88,6 +88,18 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 -ez a vers más mint az eddigiek, ez a vers szerelmes vers, 33-ban írja 
 - Lillafüreden
 - a hölgyet Szöllősi Henrikné Marton Mártának hívják, 
-- műfajmegjeleölb címe van
+- műfajmegjeleölő címe van
 - 33 júniusában készül a vers, József Atila fiatal költőként huszonéves fiatal költőként elmegy egy írókongresszusra Lillafüredre, abba a szép üdülőbe. 
-
+- Az első pillanatban beleszeret.
+- újabb lehetőség arra, hogy kitörjön a magányából
+- a vers tájleírással indul, környezetrajz
+- ahogy bámul körbe, feldereng a gyerekkor, amikor gondtalanul ugyancsak boldog lehetett
+- ha gyermekkor, akkor megjelenik a mama, akitől képtelen elszakadni
+- 33-at írunk, a mama már több mint tíz éve meghalt, már nincs, de még mindig megjelenik rejtetten a sorok között, mert a boldogságot vele azonosítja
+- ez az érzés annál erősebb, minél inkább érzi, hogy a szeretet tárgya már nincs
+- ahogy nézi a tájat, mindenről a friss élmény, Márta jut eszébe. a tájban lassanként megjelenik a nő alakja, a kis patakban a mederben megcsillanó fehér kövekről a nevetése dereng fel a költőben
+- ahogy a szél lengeti a lombkoronát, a szoknya mozgása dereng fel neki
+- minden őrá emlékezteti, mert boldog, mert örül, hogy boldog lehet
+- az egyébként végtelen hiányérzete segíti életre kelteni a kedvest
+- ez a látvány, ez a vízió megteremti a tárgyát, a szerelmest és magát a szerelmet, mert akar tartozni valakihez
+- 
