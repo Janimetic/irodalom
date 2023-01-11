@@ -121,3 +121,14 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - 
 
 kései sirató
+- "mire gondol, miről fog szólni ez a vers" "jó kérdés" "hát persze, én tettem föl!"
+- Szerelmei mögött József Attila mindig a mamát kereste. Szerelmei mögött mindig az anyai szeretetet kereste
+- Másfél évtizeddel édesanyja halála után írta
+- nem tudta elengedni
+- ott élt vele a képzeletében az álmaiban láthatatlanul
+- valószínűleg összefügg azzal, hogy nem találta meg azt a valakit, aki a helyébe léphetett volna
+- megkésett búcsú vers, melyben visszaemlékezik a drágára az egyetlenre, a pótolhatatlanra
+
+A dunánál
+- 36-ban készül
+- 
