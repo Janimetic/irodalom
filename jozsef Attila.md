@@ -89,4 +89,5 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - Lillafüreden
 - a hölgyet Szöllősi Henrikné Marton Mártának hívják, 
 - műfajmegjeleölb címe van
+- 33 júniusában készül a vers, József Atila fiatal költőként huszonéves fiatal költőként elmegy egy írókongresszusra Lillafüredre, abba a szép üdülőbe. 
 
