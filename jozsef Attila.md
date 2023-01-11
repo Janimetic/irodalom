@@ -115,4 +115,9 @@ Nyilván a szobánk odahaza azt a hangulatot tükrözi, amilyen a lelki világun
 - képzeletben belép a test belsejébe, figyeli annak működését. érzékeli a harmóniát.
 -olyan jó lenne, ha az emberi kapcsolatokban is olyan harmónia lenne, mint a test sejtjei közt. 
 - ötödik rész: fél az újabb csalódástól, hogy megint visszautasítják. szinte kezeit feltartva adja meg magát a sorsnak. 
+- hatodik résznek adott egy címet: mellékdal, mintha egy zárszó lenne, a költő búcsúszava
+- két kicsi versszak, a képzeletből visszazuhat a valóságba, cikázó gondolatai egy halvány reménysugarat megérintenek, olyannyira, hogy az utolsó sorokat már a nő szájába adja, már a nő mondja
+- vele mondatja, talán azért, mert hallani akarja 
 - 
+
+kései sirató
