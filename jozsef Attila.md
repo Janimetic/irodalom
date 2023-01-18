@@ -136,4 +136,4 @@ A Dunánál
 - a meg nem élt boldogság miatt
 - a végzet által elszakított mama miatt
 - de az emlékek egy-egy hullámja felhozza őt is, akivel olyan jó volna újra találkozni. -ki tudja? ki tudja?
--
+
