@@ -137,3 +137,13 @@ A Dunánál
 - a végzet által elszakított mama miatt
 - de az emlékek egy-egy hullámja felhozza őt is, akivel olyan jó volna újra találkozni. -ki tudja? ki tudja?
 
+számnevek leírása, intuitíve kaotikus lenne, így könnyebb megérteni a másikat
+összetett szavak leírása. háromszorosan összetett struktúráknál jelentésbeli különbségeket akarunk megjeleníteni
+vesszőhasználat ugyan ez királynét megölni nem kell félnetek jó lesz ha mindenki egyetért én nem ellenzem
+ragozás - pirospont
+
+"a semmiből nem lesz semmi" 
+
+Hazám (1937)
+Szonettciklus
+
