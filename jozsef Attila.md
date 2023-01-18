@@ -147,3 +147,27 @@ ragozás - pirospont
 Hazám (1937)
 Szonettciklus
 
+A címben ott van az első szám első személy
+Szép Szó című irodalmi újságban jelenik meg
+lefesti, hogy hogy néz ki a harmincas évekbeli újabb háború előtt álló Magyarország
+szomorú amit lát, de a valóság felrázza álmából
+Mindenfelé a nyomort látja. 
+A következő szonettben arról ír, hogy mi minden következménye van a nyomornak, amit százezrek élnek át nehéz időben. Népbetegség, csecsemőhalál, árvaság öregség, elmebaj, bűn, öngyilkosság, lelki restség
+Majdnem ugyan ezen évekből egyetlen Nobel-díjas regény a Sorstalanság
+az ötödik szonett azt írja le, hoggyan élnek  amunkások
+ezerkilenöszáz hattól idáig nem változott semmi.
+hetedik szonett. minden nehézség ellenére nem menekül el.  
+azt akarja, hogy boldogabb vesreket írhasson, de most baj van.
+
+
+az utolsó vershármas
+(Karóval jöttél ...)
+
+második vers
+Héttorony: Isztambulban az a börtön, ahova émg magyar rabokat si vittek. Ahonnan nem volt menekvés. az ő teste is uylan mint a hHéttorony, ahonnan nincs menekvés
+A vers végén feladja, nincs fogódzó, a betegsége zárja cellába
+
+(talán eltűnök hirtelen...)
+létösszegzés.
+visszatekint, summál,. 
+könnyek nélkül, száraz szemekkel síratja kettétört ifjúságát
