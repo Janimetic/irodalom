@@ -171,3 +171,20 @@ A vers végén feladja, nincs fogódzó, a betegsége zárja cellába
 létösszegzés.
 visszatekint, summál,. 
 könnyek nélkül, száraz szemekkel síratja kettétört ifjúságát
+1937 novembere
+már nincsenek tervei a jövőt illetően
+nem tud elszakadni a múlttól, ezért egyre nehezebb látnia a jövőt
+
+(Íme, hát megleltem hazámat...)
+létösszegző vers
+az első sor emelkedik címmé
+összegzés, visszatekintés búcsú
+szomorú öröm éri utol
+utoljára belenéz a tükörbe, de a tükör most is őszinte hozzá, de az most is őszinte, a valóságot mutatja
+egy magányos, megtört életet lát benne, aki már nem akar menekülni semerre
+az évszakok toposzai közül számára a tél a legmegfelelőbb, mert ez fejezi a teljes reményvesztettségét
+
+ráadás:
+Az Isten itt állt a hátam mögött
+s én megkerültem érte a világot
+
