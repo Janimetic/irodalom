@@ -188,3 +188,4 @@ ráadás:
 Az Isten itt állt a hátam mögött
 s én megkerültem érte a világot
 
+
