@@ -23,3 +23,5 @@ Az érkező oroszok felszabadították a fogolytábort.
 Radnótiék viszont elindultak északnyugati irányban. 
 4 verset írt
 
+
+Mint a bika 1933
