@@ -29,4 +29,7 @@ Mint a bika 1933
 Kortárs útlevelére
 1934-ben járunk, az emberek menekülnének, ha tudnának, lassanként már gyártani kezdik a sárga csilagokat, az embereket megbélyegzik. Van e kiút? milyen útlevél milyen életutat tudna biztosítani egy szrult helyzetben levőknek? Háromféle magatartást gondol végig radnóti. az egyik, és ez igaz lehet egész további pályafutására, az hogy meghunyászkodunk, talpat nyalunk, behódolunk az idegen elnyomásnak. A másik hogy mint a vadmacska, meghúzódunk a sötétben, és amikor eljön a pillanat, elszökünk surranva menekülünk innen. Erről a két lehetőségre azt mondja, hogy leköpheti magát az éj sötétjében. Harmadik lehetőség, mint a bika: szembefordul, föllázad, és felveszi a harcot, mert így lehet példa azok számára, akik gyengék, és segítségre, példaértékű segítsére szorulnak. 
 
+Járkálj csak, halálraítélt!
+1936, úgy tűnik, látja előre a sorsát
+Még messze nem tört ki a háború, de Radnóti érzékeli, hogy fogy körülöttük a levegő. Akiket megbélyegeznek azzal a sárga csillaggal, sok jóra nem számíthatnak. Tényleg űgy élnek, mint akik eleve halálra vannak ítélve. Így lesz ez a vers százezrek önmegszólító költeménye. Egyre szűkebb az a tér, amelyben az életük zajlik. A világ terhe a vállukra nehezedik. Egy ilyen nehéz jelenben lesz különösen fontos egyenes gerinccel megmaradni. Egy költőnek sokszoroson kell példát mutatni és tisztának, erkölcsösnek megmaradni. Mert a költők az életért emelnek szót ebben a felfordult világban. 
 
