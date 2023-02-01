@@ -28,3 +28,5 @@ Mint a bika 1933
 
 Kortárs útlevelére
 1934-ben járunk, az emberek menekülnének, ha tudnának, lassanként már gyártani kezdik a sárga csilagokat, az embereket megbélyegzik. Van e kiút? milyen útlevél milyen életutat tudna biztosítani egy szrult helyzetben levőknek? Háromféle magatartást gondol végig radnóti. az egyik, és ez igaz lehet egész további pályafutására, az hogy meghunyászkodunk, talpat nyalunk, behódolunk az idegen elnyomásnak. A másik hogy mint a vadmacska, meghúzódunk a sötétben, és amikor eljön a pillanat, elszökünk surranva menekülünk innen. Erről a két lehetőségre azt mondja, hogy leköpheti magát az éj sötétjében. Harmadik lehetőség, mint a bika: szembefordul, föllázad, és felveszi a harcot, mert így lehet példa azok számára, akik gyengék, és segítségre, példaértékű segítsére szorulnak. 
+
+
