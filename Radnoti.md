@@ -33,3 +33,7 @@ Járkálj csak, halálraítélt!
 1936, úgy tűnik, látja előre a sorsát
 Még messze nem tört ki a háború, de Radnóti érzékeli, hogy fogy körülöttük a levegő. Akiket megbélyegeznek azzal a sárga csillaggal, sok jóra nem számíthatnak. Tényleg űgy élnek, mint akik eleve halálra vannak ítélve. Így lesz ez a vers százezrek önmegszólító költeménye. Egyre szűkebb az a tér, amelyben az életük zajlik. A világ terhe a vállukra nehezedik. Egy ilyen nehéz jelenben lesz különösen fontos egyenes gerinccel megmaradni. Egy költőnek sokszoroson kell példát mutatni és tisztának, erkölcsösnek megmaradni. Mert a költők az életért emelnek szót ebben a felfordult világban. 
 
+
+Régóta ött függ szobája falán egy arckép
+és most ott áll a kép előtt és lelkiismeret furdalása van, nem nagoyn mer szembenézni vele még a halálon túl sem. mert tudomására jutott, hogy születése pillanatában ikertestvére már halva született és nem sokkal később édesanyja is meghalt. ezt ő most fogja fel fiatal felnőttként. a kép előtt megállva bocsánatot kér. tudja, és érzi, és most a kép előtt állva megvallja édesanyjának, ő kettejük helyett is élni akar. hogyha a sors ilyen kegyetlen is volt akkor hozzájuk, talán nem véletlen, hogy ő életben maradhatott. Emiatt kell méltó életet élnie Radnótinak.
+
