@@ -37,3 +37,14 @@ Még messze nem tört ki a háború, de Radnóti érzékeli, hogy fogy körülö
 Régóta ött függ szobája falán egy arckép
 és most ott áll a kép előtt és lelkiismeret furdalása van, nem nagoyn mer szembenézni vele még a halálon túl sem. mert tudomására jutott, hogy születése pillanatában ikertestvére már halva született és nem sokkal később édesanyja is meghalt. ezt ő most fogja fel fiatal felnőttként. a kép előtt megállva bocsánatot kér. tudja, és érzi, és most a kép előtt állva megvallja édesanyjának, ő kettejük helyett is élni akar. hogyha a sors ilyen kegyetlen is volt akkor hozzájuk, talán nem véletlen, hogy ő életben maradhatott. Emiatt kell méltó életet élnie Radnótinak.
 
+Az Eclogák
+Kre 3. sz Theokritosz nevű görög költő volt
+Egy alkalommal lépett egy méreszet, és írt egy verset, amiben nem egy valaki szólalt meg, nem az ő gondolatai foglaltak helyet, hanem két szereplő beszéltetésére vállalkozottü a szereplők marhapásztorok voltak. az élet egyszerű, hötköznapi dolgairól beszélgettek. békés, családias életkép volt. ez az élekép
+Eidüllionok -  ezt itt zolitól elkérni
+
+
+
+...
+marhapásztorok megint. 
+1938-as. holnapután kitör a háború, de ő ezt még nem tudhatja. de számol mindennel
+Érezni a világ felfordulását. aez az eclogája az első a leginkább vergiliusi. ebben követi a leghűségesebben az eredeti példát. Az elején van egy idézt Vergiliustól. egy mottó. ez azt jelenti, hogy a lényeg kiemelve egy tételmondatban egy korábbi költőtől vett idézetben benne foglaltatik
