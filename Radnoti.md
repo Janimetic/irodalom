@@ -52,3 +52,20 @@ marhapásztorok megint.
 beszélgetésükből kiderül, hogy minden jel baljós. háborúra utaló. az egyik pásztor utal a pireneusokra. a pireneusok mögött utal a frankok spanyolországba vezetett hadjáratára.  Lealacsonyodik, lealjasodik az ember, ahogy saját fajtáját irtja. Szomorúan említi a pásztor Federico halálát. Fiatalos hévvel küzdött népe szabadságáért, de ebben a szabadságharcban eltűnt. Radnóti a nevét a vers közepére teszi, azaz a centrumba helyezi. 
  a párbeszéd utolsó megszólalása a költőé. a kérdésre, melyet a pásztor tesz, hogy mit fogsz csinálni, a válasz: úgy akarok élni, mint egy tölgyfa az erdőben, melyet megjelölt már a favágó. megjelölve abból a célból, hogy rövidesen kivágják. 
 Ahogy a tölgy levelet hajt míg ki nem vágják, addig ő is verselni fog, amíg tud, mert az élete az írás.
+
+Tajtékos ég 1943
+az égbolton a föld szenvedései tükröződnek
+nem tud megnyugodni az ég, mert annyira meggyötört ez a világ
+
+1941 augusztusában járunk. (új vers)
+Csak csont és bőr és fájdalom
+
+Tétova óda
+párja József Attila Óda című versének. Egy szép szerelmes költemény, a címzett Fanni. 
+Műfajmegjelölő a cím.
+ünnepélyes, félénk hangon megvallott, őszinte szerelmi vallomás az örök hűségre
+
+
+(cím )
+hazaszeretetének legszebb tanúvallomása
+mintha összegződne benne Petőfi hazaszeretete, nemzetféltése, ami ebben a felbojdult világban a legegyszerűbb szavakkal megtett vallomás lesz
