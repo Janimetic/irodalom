@@ -51,3 +51,4 @@ marhapásztorok megint.
 
 beszélgetésükből kiderül, hogy minden jel baljós. háborúra utaló. az egyik pásztor utal a pireneusokra. a pireneusok mögött utal a frankok spanyolországba vezetett hadjáratára.  Lealacsonyodik, lealjasodik az ember, ahogy saját fajtáját irtja. Szomorúan említi a pásztor Federico halálát. Fiatalos hévvel küzdött népe szabadságáért, de ebben a szabadságharcban eltűnt. Radnóti a nevét a vers közepére teszi, azaz a centrumba helyezi. 
  a párbeszéd utolsó megszólalása a költőé. a kérdésre, melyet a pásztor tesz, hogy mit fogsz csinálni, a válasz: úgy akarok élni, mint egy tölgyfa az erdőben, melyet megjelölt már a favágó. megjelölve abból a célból, hogy rövidesen kivágják. 
+Ahogy a tölgy levelet hajt míg ki nem vágják, addig ő is verselni fog, amíg tud, mert az élete az írás.
