@@ -48,3 +48,6 @@ Eidüllionok -  ezt itt zolitól elkérni
 marhapásztorok megint. 
 1938-as. holnapután kitör a háború, de ő ezt még nem tudhatja. de számol mindennel
 Érezni a világ felfordulását. aez az eclogája az első a leginkább vergiliusi. ebben követi a leghűségesebben az eredeti példát. Az elején van egy idézt Vergiliustól. egy mottó. ez azt jelenti, hogy a lényeg kiemelve egy tételmondatban egy korábbi költőtől vett idézetben benne foglaltatik
+
+beszélgetésükből kiderül, hogy minden jel baljós. háborúra utaló. az egyik pásztor utal a pireneusokra. a pireneusok mögött utal a frankok spanyolországba vezetett hadjáratára.  Lealacsonyodik, lealjasodik az ember, ahogy saját fajtáját irtja. Szomorúan említi a pásztor Federico halálát. Fiatalos hévvel küzdött népe szabadságáért, de ebben a szabadságharcban eltűnt. Radnóti a nevét a vers közepére teszi, azaz a centrumba helyezi. 
+ 
