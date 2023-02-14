@@ -81,3 +81,16 @@ Radnóti nagyon fél, hogy Fanni láthatatlan keze végleg el fogja engedni.
 De ő nem akarta feladni. Bármennyi lesz a gyötrelem, a fájdalom az éheszés, ő nem akarta feladni. Rajta ne múljon, hogy láthassák egymást.
 Radnótiban végig megmaradt az élni akarás ösztöne.
 1944 augusztusában készült a vers, Lager Heidenau 
+
+A la recherche
+
+Radnótai a láger szgesdrótjai mögül próbálta megkeresni, megtalálni az eltűt időt. 
+Vagyis a boldog múltat, ami már úgy tűnt, visszahozhatatlan. 
+A tovatűnt boldog ifjúságot keresi, de már megélni, átélni nem fogja tudni Radnóti
+Minden amiről ír, már a múlté, minden ami a versben szerepel már csak emlék. Síratja az életet
+Nem tud mit tenni, csak az emlékekbe menekülni. Ezért szmorú, és rezignált hangú  ez a vers. rezignált: mélyen lehangoló, elkeserítő, elszomorító, beletörődő elfogadó
+
+Utolsó három vers:
+
+Nyolcadik ecloga
+
