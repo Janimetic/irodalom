@@ -70,7 +70,8 @@ Nem tudhatom
 hazaszeretetének legszebb tanúvallomása
 mintha összegződne benne Petőfi hazaszeretete, nemzetféltése, ami ebben a felbojdult világban a legegyszerűbb szavakkal megtett vallomás lesz
 
-7. ecloga
+Hetedik ecloga
 
 Levél a hitveshez
 
+Fannihoz írja ezt a verset élete utolsó évében. 1944-ben. Pár hónappal a halála előtt. 
