@@ -66,6 +66,10 @@ Műfajmegjelölő a cím.
 ünnepélyes, félénk hangon megvallott, őszinte szerelmi vallomás az örök hűségre
 
 
-(cím )
+Nem tudhatom
 hazaszeretetének legszebb tanúvallomása
 mintha összegződne benne Petőfi hazaszeretete, nemzetféltése, ami ebben a felbojdult világban a legegyszerűbb szavakkal megtett vallomás lesz
+
+7. ecloga
+
+Levél a hitveshez
