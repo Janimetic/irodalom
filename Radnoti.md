@@ -74,4 +74,10 @@ Hetedik ecloga
 
 Levél a hitveshez
 
-Fannihoz írja ezt a verset élete utolsó évében. 1944-ben. Pár hónappal a halála előtt. 
+Fannihoz írja ezt a verset élete utolsó évében. 1944-ben. Pár hónappal a halála előtt.
+Nem tudhatta, de számolt vele, az bizots. Utolsó verseinek mindegyikében felbukkan Fanni alakja. Nem tud nem gondolni rá. Ő a kapocs az élethez.Szülőhazájához. Családjához. Érthenő, hogy egy egy verse kifejezetten neki szól.
+Radnóti nagyon fél, hogy Fanni láthatatlan keze végleg el fogja engedni. 
+"Nem kérdez hülyeséget, csak úgy hangzik" Dominek Zsolt 
+De ő nem akarta feladni. Bármennyi lesz a gyötrelem, a fájdalom az éheszés, ő nem akarta feladni. Rajta ne múljon, hogy láthassák egymást.
+Radnótiban végig megmaradt az élni akarás ösztöne.
+1944 augusztusában készült a vers, Lager Heidenau 
