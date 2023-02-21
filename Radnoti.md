@@ -104,8 +104,9 @@ Erőltetett menet
 Viszonylagos nyugalomban készül még a vers, de már készen állnak a nem tudni milyen hosszú útra. 
 Egyre közelebbről hallják a frontot
 A németek irhájukat mentve összeszedik a tábort, ahogy máshol is volt, megpróbátak mindent eltűntetni, ami terhelő bizonyíték lett volna rájuk nézve a háborű befejeződése után. A tábort itt is felszámolják.
-Étlen-szomjan, fikiailag teljesen legyengülve indulnak a bizoyntalan felé.
+Étlen-szomjan, fizikailag teljesen legyengülve indulnak a bizoyntalan felé.
 Nem kell csodálkozni, hogy nézhetett ki aez a fogolysereg. Nagyon jól mutatja a vers szerkezete és felépítése
 a hosszú sorok
 
-
+Razglednicák
+különböző időpontban, különböző helyszínen. mely a menetelésük folyamán készlült
