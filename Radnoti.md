@@ -109,4 +109,13 @@ Nem kell csodálkozni, hogy nézhetett ki aez a fogolysereg. Nagyon jól mutatja
 a hosszú sorok
 
 Razglednicák
-különböző időpontban, különböző helyszínen. mely a menetelésük folyamán készlült
+különböző időpontban, különböző helyszínen. mely a menekülésük folyamán készült. Mé ekkor a borzalmas karülmények között, is ír. Mindegyik személyes élmény. Ettől lesz hiteles, igaz 
+
+1944 augusztus végén készül, nincs konkrét helyszín, valahol a hegyek között készül. Hallják közeledni a frontot. Nyolc soros kis életjel. Egyetlen üzenete van: bármelyik pillanat elhozhatja a halált. és ezzel ők mint fgjok kénytelenesek számmolni.
+
+2. Cservenka 1944. október 6. Nagyon közelről érezni a háború, a front szelét ebben a képben. Megpillantanak régi parasztházak előtt öreg parasztokat. Akik nem akarnak elmenekülni sehova. Ők nem akarják otthagyni a szülőföldjüket, de inkább bevárják a sorsukat.  A foglyokat továbbhajszolják
+A harmadik rész helyszíne Mohács. 1944. október 24.
+Testközelből látja a borzalmakat Az egykori idillnek nyoma sincs. mindenki sszenved
+
+4. Szentkiráyl szabadja. itt készült el az utolsó radnóti vers
+Egyre töllször zuhan a oglyok teste a földbe. akinek nincs ereje, az pár pillanat múlva holtan rogy össze
