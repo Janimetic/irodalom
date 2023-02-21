@@ -93,4 +93,18 @@ Nem tud mit tenni, csak az emlékekbe menekülni. Ezért szmorú, és rezignált
 Utolsó három vers:
 
 Nyolcadik ecloga
+1944. augusztus 23. Lager Heidenau, Zsagubica fölött a hegyekben
+visszahozza a párbeszédes formát. De költő és próféta találkozik egymással. már hatodik éve zajlik a háború. 
+Érezhető a világ felfordulása. Apokaliptikusnak tekinthető az elénktáruló látvány. Egy teljes összeomlás, ami magában hordozza a reményt, hogy ebből újjászülethet valami.
+A párbeszéd most is látszólagos. költő - próféta, a költőnek prrófétia küldetése van.: a bűnök ostorzása
+Mert megsokasodott a bűn a világban. Az utolsó szó a prófétáé a párbeszédben. Aki szeretné, ha eljönne végre egy új tanítvány, egy rabbi, aki megváltaná bűneitől ezt a süllyedő világot. Halványan a rabbi alakja mögött Jézus alakja vetítődik az ember elé. 
+
+utolsó előtti:
+Erőltetett menet
+Viszonylagos nyugalomban készül még a vers, de már készen állnak a nem tudni milyen hosszú útra. 
+Egyre közelebbről hallják a frontot
+A németek irhájukat mentve összeszedik a tábort, ahogy máshol is volt, megpróbátak mindent eltűntetni, ami terhelő bizonyíték lett volna rájuk nézve a háborű befejeződése után. A tábort itt is felszámolják.
+Étlen-szomjan, fikiailag teljesen legyengülve indulnak a bizoyntalan felé.
+Nem kell csodálkozni, hogy nézhetett ki aez a fogolysereg. Nagyon jól mutatja a vers szerkezete és felépítése
+a hosszú sorok
 
