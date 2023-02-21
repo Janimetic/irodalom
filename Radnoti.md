@@ -108,3 +108,4 @@ A németek irhájukat mentve összeszedik a tábort, ahogy máshol is volt, megp
 Nem kell csodálkozni, hogy nézhetett ki aez a fogolysereg. Nagyon jól mutatja a vers szerkezete és felépítése
 a hosszú sorok
 
+
