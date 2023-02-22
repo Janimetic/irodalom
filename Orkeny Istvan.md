@@ -36,3 +36,8 @@ A tűzoltóparancsnok házában zajlik a cselekmény. A Tót Lajos tűzoltópara
 Fiuk, Gyula kint szolgál a fronton. Talán százados, az orosz fronton. levelet ír haza a szüleinek. A levélben az áll, hogy "kedves szüleim, meghívtam magukhoz az őrnagyunkat szabadságra." Nyilván mindenki sejti, hogy miért. Cserébe abban bízott, hogy nem az első sorban kell harcolnia. Tehát nem önzetlenül ajánlja fel a meghívást, abban bízik, hogy kedvezményezett lesz, és lesz esélye túlélni a háborút. Tájékoztatja a családot, hogy az őrnagy kicsit beteges. Érzékeny a szagokra, és az erős hangokra. Mert a harcokban felörlődött az idegállapota. Nem véletlenül ajánlott fel a mátrai csendes faluban a pihenés két hetét. A helyzet pikantériája, fordulat: 
 Az egészben az a mókás, hogy mire az őrnagy megérkezik, a fiú hősi halált hal a fronton
 A család akkor vállalja az áldozatot, amikor az már teljesen felesleges.
+A szülők készülnek. Tót Lajos, felesége Mariska. Gyula fiú huga, egy lány. Ágika. A szituáció már itt groteszk. 
+Mindezzel Örkénynek van egy olyan üzenete, hogy lám, nem csak azok áldozatok, akik kint a fronton meghalnak. A hátországban is szedi az áldozatait, őket is eléri a háború zaja.
+A háborúban úgy tűnik a kisemberek veszítenek. A kisemberek mind kiszolgáltatottak
+Mielőtt megérkezne az Őrnagy, érkezik egy levél. A postás viszont félnótás. A család nem tudja meg a tragédiát.
+Az őrnagy (az első filmben) Latinovics Zoltán. Latinovics visznylag alacsony növésű volt. A tűzoltóparancsnok meg magas. Mikor leszáll a buszról, az őrnagynak szembetűnik, hogy ez a magas növésű
