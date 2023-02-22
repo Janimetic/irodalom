@@ -2,4 +2,36 @@
 
 Eredetileg vegyészdiplomát szerzett.
 Két ismert újságnak is volt társsszerzője, az egyik az Újhold, a másik pedig (az érdekesebb) a Magyar Csillag
+A Magyar Csillag az egyik legismertebb 2ü. századi folyóirat jogutódja. A Nyugaté
+A Nyugat 19ü8 január 1-jén, szerdán indult
+Szerkesztője Ignotus volt. Egy zsidó származású művelt ember. 
+Két társszerkesztő Fenyő mikso, Osváth Ernő
+bő húsz évig ők vitték a Nyugatot
+ezután a Nyugat vezetését átadták másnak. 
+Ennél az indulásnál ilyen emberek voltak jelen még: Ady, Babits, Móricz, Karinthy Frigyes
+
+1929-ben a lap vezetését átadták Babits Mihálynak és Móricz Zsigmondnak. 1933-ig. A fő ember Babits volt. Ő a városi lírát részesítette előnyben. Móricz Zsigmond pedig a vidék Magyarországának a prózairodalmát akarta (?)-
+Babits maradt a Nyugatnál, haláláig vitte a lapot.
+Móricz pedig a Kelet Népe néven vitt egy lapot
+
+A Nyugat szellemiségét Illyés Gyula vitte tovább Magyar Csillag című lapjában
+
+Munkái főleg a második világháború után jelentek meg. Érthetően, azoknak a témája elsősorban az a háború volt. Ezt pedig nem lehet elválasztani a fasizmus ábrázolásától
+Az ő életében is törést hozott 1956. 1966-ban jelentkezett egy novelláskötettel. Címe Jeruzsálem hercegnője
+1967: nászutasok a légypapíron
+
+Ezek a novellák rendkívül tömörek. 
+Rendkívül kevés bennük a tényanyag. Valójában nagy teret akar biztosítani az olvasónak. Mert ezek a novellák bennünk érnek véget. 
+1964-ben készül el a Tóték című kisregénye
+1966-ban Macskajáték: tragikomédia
+Ezek drámák, mindkettőt saját maga Örkény dramatizálta. Ő írta át őket drámává.
+Ábrázolásmódja Örkénynek groteszk. Ellentétes értékminőségeket társít. Ellentmondásos az egész
+groteszk 2: a valóságot eltorzítva ábrázolja. A két definíció ekvivalens
+
+bizonyos jelenségek fonákját is bemutatja. 
+Ilyen történet a Tóték is.
+a groteszk szó olasz eredetű. la grotta: barlang. A barlang oldala nem olyan, mint egy meszelt fal, rücskös. A rá festett kép a valóság eltorzított verziója.
+A második világháború idején játszódik valahol a Mátrában. Mátraszentanna. A történet fiktív helyszínen játszódik, a hátországban. 
+A tűzoltóparancsnok házában zajlik a cselekmény. A Tót Lajos tűzoltóparancsnok.
+Fiuk, Gyula kint szolgál a fronton. Talán százados, az orosz fronton. levelet ír haza a szüleinek. A levélben az áll, hogy "kedves szüleim, meghívtam magukhoz az őrnagyunkat szabadságra." Nyilván mindenki sejti, hogy miért. Cserébe abban bízott, hogy nem az első sorban kell harcolnia. Tehát nem önzetlenül ajánlja fel a meghívást, abban bízik, hogy kedvezményezett lesz, és lesz esélye túlélni a háborút. Tájékoztatja a családot, hogy az őrnagy kicsit beteges. Érzékeny a szagokra, és az erős hangokra. Mert a harcokban felörlődött az idegállapota. Nem véletlenül ajánlott fel a mátrai csendes faluban a pihenés két hetét. A helyzet pikantériája, fordulat: 
 
