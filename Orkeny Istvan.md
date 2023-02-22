@@ -34,4 +34,5 @@ a groteszk szó olasz eredetű. la grotta: barlang. A barlang oldala nem olyan, 
 A második világháború idején játszódik valahol a Mátrában. Mátraszentanna. A történet fiktív helyszínen játszódik, a hátországban. 
 A tűzoltóparancsnok házában zajlik a cselekmény. A Tót Lajos tűzoltóparancsnok.
 Fiuk, Gyula kint szolgál a fronton. Talán százados, az orosz fronton. levelet ír haza a szüleinek. A levélben az áll, hogy "kedves szüleim, meghívtam magukhoz az őrnagyunkat szabadságra." Nyilván mindenki sejti, hogy miért. Cserébe abban bízott, hogy nem az első sorban kell harcolnia. Tehát nem önzetlenül ajánlja fel a meghívást, abban bízik, hogy kedvezményezett lesz, és lesz esélye túlélni a háborút. Tájékoztatja a családot, hogy az őrnagy kicsit beteges. Érzékeny a szagokra, és az erős hangokra. Mert a harcokban felörlődött az idegállapota. Nem véletlenül ajánlott fel a mátrai csendes faluban a pihenés két hetét. A helyzet pikantériája, fordulat: 
-
+Az egészben az a mókás, hogy mire az őrnagy megérkezik, a fiú hősi halált hal a fronton
+A család akkor vállalja az áldozatot, amikor az már teljesen felesleges.
