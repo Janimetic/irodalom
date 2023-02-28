@@ -41,5 +41,6 @@ Mindezzel Örkénynek van egy olyan üzenete, hogy lám, nem csak azok áldozato
 A háborúban úgy tűnik a kisemberek veszítenek. A kisemberek mind kiszolgáltatottak
 Mielőtt megérkezne az Őrnagy, érkezik egy levél. A postás viszont félnótás. A család nem tudja meg a tragédiát.
 Az őrnagy (az első filmben) Latinovics Zoltán. Latinovics visznylag alacsony növésű volt. A tűzoltóparancsnok meg magas. Mikor leszáll a buszról, az őrnagynak szembetűnik, hogy ez a magas növésű
+Arra ösztönzi, hogy a térdét berogyasztva, sisakját fejébe húzva közlekedjen
 
 
