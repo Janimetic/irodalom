@@ -42,5 +42,13 @@ A háborúban úgy tűnik a kisemberek veszítenek. A kisemberek mind kiszolgál
 Mielőtt megérkezne az Őrnagy, érkezik egy levél. A postás viszont félnótás. A család nem tudja meg a tragédiát.
 Az őrnagy (az első filmben) Latinovics Zoltán. Latinovics visznylag alacsony növésű volt. A tűzoltóparancsnok meg magas. Mikor leszáll a buszról, az őrnagynak szembetűnik, hogy ez a magas növésű
 Arra ösztönzi, hogy a térdét berogyasztva, sisakját fejébe húzva közlekedjen
-
-
+Tót Lajos nem tud mit tenni, mert végig ott van a tudatalattijában, hogy el kell tűrnie mindent, mert a fiuk életéről van szó. 
+A fiuk pedig már rég halott, mikor meghozzák az áldozatot
+Alázattal vezetik a házukba, és az őrnagy rögtön otthon érzi magát. Mindent a saját kénye-kedvére alakít át. 
+A család mindennapi életét forgatja fel egyik percről a másikra. 
+Leállítják a kakukkosórát
+Zavarja a kakas kukorékolása, ezért bezárnak mindent hajnaltájban
+Az őrnagy felcseréli a napszakokat
+Az őrnagy magával hozta a frontot a háborúból a hátországba
+Miután elkezd fölkelni a nap, nyugovóra térnek hajnalban.
+Mégis mindent tűrnek, mert a fiuk életéről van szó.
