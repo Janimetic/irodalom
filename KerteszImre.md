@@ -1,2 +1,1 @@
-
-
+1929 november 9-én született
