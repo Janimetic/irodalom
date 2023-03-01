@@ -119,3 +119,4 @@ Testközelből látja a borzalmakat Az egykori idillnek nyoma sincs. mindenki ss
 
 4. Szentkiráyl szabadja. itt készült el az utolsó radnóti vers
 Egyre töllször zuhan a oglyok teste a földbe. akinek nincs ereje, az pár pillanat múlva holtan rogy össze
+Novemberben utolérte őket is a halál. 
