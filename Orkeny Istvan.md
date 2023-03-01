@@ -52,3 +52,16 @@ Az őrnagy felcseréli a napszakokat
 Az őrnagy magával hozta a frontot a háborúból a hátországba
 Miután elkezd fölkelni a nap, nyugovóra térnek hajnalban.
 Mégis mindent tűrnek, mert a fiuk életéről van szó.
+Dobozolással foglalkoznak. Ez azt jelenti, hogy egész éjjel kartondobozokat hajtogatnak, egészségügyi ellátmány csomagolására.
+Miután letelik a két hét, kikísérik az állomásra, majd hazamennek.
+Tót kiegyenesedik, felemeli a sisakot, majd leroskad egy fotelbe, és rágyújt egy szivarra.
+Nem sok idő telik el, egyszer csak hirtelen zajt hallanak. Kopogás. Rémület lesz úrrá rajtuk. Óvatos kíváncsisággal nyitják ki az ajtót. Az ajtóban ott áll az őrnagy. Hamar úrrá lesz a helyzeten, elmeséli, hogy a partizánok felszedték a síneket. 
+Az őrnagy már folytatná ott, ahol az imént abbahagyták a dobozolást.
+A kés viszont kint van a kertben.
+Kimennek hát az őrnagy, és Tót a kertbe
+Tompa puffanások hallatszanak
+
+
+Idézet Örkénytől
+"A Tóték a magam szándéka szerint a kiszolgáltatottak tragikomédiája. Kölcsönös függőségben élünk, egy személyben vagyunk zsarnokok és áldozatok. Hitem szerint az Őrnagy és a tűzoltóparancsnok valójában egy személy. Ahhoz, persze, hogy ebből drámai mű lehessen, össze kellett szikráztatni a benne rejlő pólusokat. A mű azt kérdezi, hogy véges-e vagy végtelen az elnyomottak tűrőképessége, és azt válaszolja: van ennek is végpontja, amelyen túl béketűrésünk elfogy, és föllázadunk." 
+
