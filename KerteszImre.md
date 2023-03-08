@@ -20,5 +20,4 @@ Sikerre csak a rendszerváltás után számíthatott, és a sors fintora, hogy e
 Mikor Nobel-díjat kapott, a tanár úr még nem olvasta a Sorstalanságot. de ez csak kuriózum
 Ez egy dokumentum jellegű holokauszt-regény. Egy egészen más fajta megközelítésben. 
 Koltai Lajos készített belőle filmváltozatot. (megnézni)
-
-
+2üü2 október 1ü-én hirdették ki, hogy Nobel-díjas lett Stockholmban
