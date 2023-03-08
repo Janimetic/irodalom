@@ -63,5 +63,21 @@ Tompa puffanások hallatszanak
 
 
 Idézet Örkénytől
-"A Tóték a magam szándéka szerint a kiszolgáltatottak tragikomédiája. Kölcsönös függőségben élünk, egy személyben vagyunk zsarnokok és áldozatok. Hitem szerint az Őrnagy és a tűzoltóparancsnok valójában egy személy. Ahhoz, persze, hogy ebből drámai mű lehessen, össze kellett szikráztatni a benne rejlő pólusokat. A mű azt kérdezi, hogy véges-e vagy végtelen az elnyomottak tűrőképessége, és azt válaszolja: van ennek is végpontja, amelyen túl béketűrésünk elfogy, és föllázadunk." 
+"A Tóték a magam szándéka szerint a kiszolgáltatottak tragikomédiája.-
+ Kölcsönös függőségben élünk, egy személyben vagyunk zsarnokok és áldozatok.
+ Hitem szerint az Őrnagy és a tűzoltóparancsnok valójában egy személy.
+ Ahhoz, persze, hogy ebből drámai mű lehessen, össze kellett szikráztatni a benne rejlő pólusokat.
+ A mű azt kérdezi, hogy véges-e vagy végtelen az elnyomottak tűrőképessége, és azt válaszolja: van ennek is végpontja, amelyen túl béketűrésünk elfogy, és föllázadunk." 
+
+1969 Isten hozta őrnagy úr!
+
+Örkény novella:
+"In memoriem dr Khg..."
+egyperces novellákat írt
+és ötperces novellákat is írt (hurrá)
+Látszik, hogy hamarosan egy tragédiával fogunk szembesülni. Valaki tragédiájával, aki már nem él. Dr. KHG nevét nem tudjuk, csak azt, hogy értelmiségi ember. Valószínűleg az ő emlékére, ő fog meghalni. KHG: K. Havas Géza. (ez a cím elemzése volt)
+Koncántrációs táborban végezték ki. 
+Kiderül, hogy a díszlet a másoik világháború. Egy fogoly és egy őr áll egymással szemben. Nyilvánvaló, hogy a címszereplő a fogoly. Parancsrő egy vermet ás. Egy lótetemnek. Aki békeidőben embereket tanít, emberekkel foglalkozik, jóra nevel, a szépet hirdeti, most egy megalázónak tűnő feladatot teljesít. De nem lázad. Tudomásul veszi ezt a fölfordult világot, és teszi a dolgát, ami. Mert most ez a dolga. Nem tanítani, most szót kell fogadni. Ebben a rosszabn megpróbálja keresni a jót, az emberit, a háború zajában gödröt ásva egy ló tetemének megpróbál szóba elegyedni a német őrrel. A német őr nem magyar, dr Khg nem magyar. Az őr nyelvén szólal meg. Az embertelen háborús jelenben megpróbál valami emberit. 
+A fegyver képes megölni a jószándékú emberi szót. A gödör mélyén az emberi érték. A gödörnek magasában az erőszak. A háború fegyvere. Lelövi, de a győztes mégiscsak a jó kell hogy legyen. Az győz, aki odalent a gödör mélyén 
+A gödör nem a lónak készült, hanem Dr. KHG-nak.
 
