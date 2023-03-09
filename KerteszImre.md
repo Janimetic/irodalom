@@ -22,4 +22,4 @@ Ez egy dokumentum jellegű holokauszt-regény. Egy egészen más fajta megközel
 Koltai Lajos készített belőle filmváltozatot. (megnézni)
 2üü2 október 1ü-én hirdették ki, hogy Nobel-díjas lett Stockholmban
 
-
+A
