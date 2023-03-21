@@ -65,4 +65,7 @@ Szégyen, kín megalázottság.
 Film adatai:
 2üü5. február 1ü-én lett bemutatva.
 Koltai Lajos rendezte.
+14ü perc
+magyar-német-angol koprodukció
+nyelve: magyar
 
